@@ -1,1 +1,2 @@
 # assignment-three
+One of my favorite hobbies is cooking. I picked this hobby up during COVID QUarantine, I started to make food and different plates from cultures that I would see on Tiktok or Instagram. Growing up my mom wouldn’t have the patience to teach me how to cook because she’d always say that “it slows her down” teaching me and trying to cook at the same time. When COVID started I actually started making desserts first and my first bake was a caramel-filled cupcake and merengue frosting, after that, I started to learn how to make more cakes and more dishes.
